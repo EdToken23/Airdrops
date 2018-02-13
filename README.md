@@ -1,0 +1,19 @@
+# Airdrops
+En este Canal encontrarás AirDrops u otras fórmulas que te permitirán conseguir criptomonedas de manera GRATUITA. https://t.me/CriptomonedasGratuitas
+
+@EdToKen9
+#Airdrop @Airdrop_ESP
+¡Últimos días del airdrop de Legitcoin!!!!! 1 LEGITCOIN = 1.75 $
+@LegitcoinICO esta repartiendo 5 Legit Tokens a todos los usuarios que se registren
+Registro aquí :
+http://ifeed.io/h9Q3G
+
+---------------------------
+BEST AIRDROP
+Bitdark 50000 Tokens Giveaway! http://vy.tc/elIWW48
+
+---------------------------
+AIRDROP - Pon tu ETH dirección (Wallet)
+y únete al sugrupo de telegram y pega ahí el código que te dan y GANAS:
+Earn 66 LUCKY AirDrop Rewards!
+Link: http://ifeed.io/cQNeR
